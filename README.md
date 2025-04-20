@@ -1,2 +1,1 @@
-# sussy-bakanewwww
-amogus ueygfuweygbfveywguibfbsgyfuieny
+skibi ponosik
